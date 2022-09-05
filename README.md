@@ -1,2 +1,2 @@
 # MCschool
-Hello i am Therese
+Hello my name is Therese
